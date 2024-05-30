@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hupcoo
+- 👀 I’m interested in C++ coding 
+- 🌱 I’m currently learning C++ language at high school
+- 📫 How to reach me: ig: _matus_hupcik_
+- 😄 Pronouns: he / him
